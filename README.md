@@ -14,7 +14,6 @@
 * As you grow older, you’ll see white men cheat black men every day of your life, but let me tell you something and don’t you forget it—whenever a white man does that to a black man, no matter who he is, how rich he is, or how fine a family he comes from, that white man is trash.
 * People in their right minds never take pride in their talents.
 * It was times like these when I thought my father, who hated guns and had never been to any wars, was the bravest man who ever lived.
-* Mockingbirds don’t do one thing but make music for us to enjoy. They don’t eat up people’s gardens, don’t nest in corncribs, they don’t do one thing but sing their hearts out for us. That’s why it’s a sin to kill a mockingbird.
 * With him, life was routine; without him, life was unbearable.
 * Real courage is when you know you're licked before you begin, but you begin anyway and see it through no matter what.
 * You just hold your head high and keep those fists down. No matter what anybody says to you, don't you let 'em get your goat. Try fighting with your head for a change.
@@ -22,31 +21,23 @@
 * Things are always better in the morning.
 #### Wuthering Heights
 * He's more myself than I am. Whatever our souls are made of, his and mine are the same.
-* If all else perished, and he remained, I should still continue to be; and if all else remained, and he were annihilated, the universe would turn to a mighty stranger.
-* Be with me always - take any form - drive me mad! only do not leave me in this abyss, where I cannot find you! Oh, God! it is unutterable! I can not live without my life! I can not live without my soul!
 * I wish I were a girl again, half-savage and hardy, and free.
 * If he loved with all the powers of his puny being, he couldn't love as much in eighty years as I could in a day.
-* Catherine Earnshaw, may you not rest as long as I am living. You said I killed you--haunt me then. The murdered do haunt their murderers. I believe--I know that ghosts have wandered the earth. Be with me always--take any form--drive me mad. Only do not leave me in this abyss, where I cannot find you! Oh, God! It is unutterable! I cannot live without my life! I cannot live without my soul!
-* I have not broken your heart - you have broken it; and in breaking it, you have broken mine.
 * Terror made me cruel . . .
 * She burned too bright for this world.
 * I cannot express it; but surely you and everybody have a notion that there is or should be an existence of yours beyond you. What were the use of my creation, if I were entirely contained here? My great miseries in this world have been Heathcliff's miseries, and I watched and felt each from the beginning: my great thought in living is himself. If all else perished, and he remained, I should still continue to be; and if all else remained, and he were annihilated, the universe would turn to a mighty stranger: I should not seem a part of it. My love for Linton is like the foliage in the woods: time will change it, I'm well aware, as winter changes the trees. My love for Heathcliff resembles the eternal rocks beneath: a source of little visible delight, but necessary. Nelly, I am Heathcliff! He's always, always in my mind: not as a pleasure, any more than I am always a pleasure to myself, but as my own being.
 * I gave him my heart, and he took and pinched it to death; and flung it back to me. People feel with their hearts, Ellen, and since he has destroyed mine, I have not power to feel for him.
-* If you ever looked at me once with what I know is in you, I would be your slave.
 * You teach me now how cruel you've been - cruel and false. Why did you despise me? Why did you betray your own heart, Cathy? I have not one word of comfort. You deserve this. You have killed yourself. Yes, you may kiss me, and cry; and wring out my kisses and tears: they'll blight you - they'll damn you. You loved me - what right had you to leave me? What right - answer me - for the poor fancy you felt for Linton? Because misery, and degradation, and death, and nothing that God or Satan could inflict would have parted us, you, of your own will did it. I have no broken your heart - you have broken it; and in breaking it, you have broken mine. So much the worse for me that I am strong. Do I want to live? What kind of living will it be when you - Oh, God! would you like to lie with your soul in the grave?
 * I have to remind myself to breathe -- almost to remind my heart to beat!
-* My love for Linton is like the foliage in the woods: time will change it, I'm well aware, as winter changes the trees. My love for Heathcliff resembles the eternal rocks beneath: a source of little visible delight, but necessary. Nelly, I am Healthcliff! He's always, always in my mind: not as a pleasure, any more than I am always a pleasure to myself, but as my own being.
+* My love for Linton is like the foliage in the woods: time will change it, I'm well aware, as winter changes the trees. My love for Heathcliff resembles the eternal rocks beneath: a source of little visible delight, but necessary. Nelly, I am Heathcliff! He's always, always in my mind: not as a pleasure, any more than I am always a pleasure to myself, but as my own being.
 * It was not the thorn bending to the honeysuckles, but the honeysuckles embracing the thorn.
 * It is hard to forgive, and to look at those eyes, and feel those wasted hands,' he answered. 'Kiss me again; and don’t let me see your eyes! I forgive what you have done to me. I love my murderer—but yours! How can I?
 * Honest people don't hide their deeds.
-* May she wake in torment!" he cried, with frightful vehemence, stamping his foot, and groaning in a sudden paroxysm of ungovernable passion. "Why, she's a liar to the end! Where is she? Not there—not in heaven—not perished—where? Oh! you said you cared nothing for my sufferings! And I pray one prayer—I repeat it till my tongue stiffens—May she wake in torment!" he cried, with frightful vehemence, stamping his foot, and groaning in a sudden paroxysm of ungovernable passion. "Why, she's a liar to the end! Where is she? Not there—not in heaven—not perished—where? Oh! you said you cared nothing for my sufferings! And I pray one prayer—I repeat it till my tongue stiffens—Catherine Earnshaw, may you not rest as long as I am living; you said I killed you—haunt me, then! The murdered do haunt their murderers, I believe. I know that ghosts have wandered on earth. Be with me always—take any form—drive me mad! only do not leave me in this abyss, where I cannot find you! Oh, God! it is unutterable! I cannot live without my life! I cannot live without my soul!
 * Heaven did not seem to be my home; and I broke my heart with weeping to come back to earth; and the angels were so angry that they flung me out into the middle of the heath on the top of Wuthering Heights; where I woke sobbing for joy.
 * He wanted all to lie in an ecstasy of peace; I wanted all to sparkle and dance in a glorious jubilee. I said his heaven would be only half alive; and he said mine would be drunk: I said I should fall asleep in his; and he said he could not breathe in mine.
 * He shall never know I love him: and that, not because he's handsome, but because he's more myself than I am. Whatever our souls are made out of, his and mine are the same.
 * I’m wearying to escape into that glorious world, and to be always there: not seeing it dimly through tears, and yearning for it through the walls of an aching heart: but really with it, and in it.
 * A person who has not done one half his day's work by ten o'clock, runs a chance of leaving the other half undone.
-* Nelly, I am Heathcliff - he's always, always in my mind - not as a pleasure, any more then I am always a pleasure to myself - but, as my own being.
-* And I pray one prayer--I repeat it till my tongue stiffens--Catherine Earnshaw, may you not rest as long as I am living! You said I killed you--haunt me, then!...Be with me always--take any form--drive me mad! only do not leave me in this abyss, where I cannot find you!
 * Treachery and violence are spears pointed at both ends; they wound those who resort to them worse than their enemies.
 * Whatever our souls are made of, his and mine are the same.
 #### Pride and Prejudice
@@ -57,7 +48,6 @@
 * I cannot fix on the hour, or the spot, or the look or the words, which laid the foundation. It is too long ago. I was in the middle before I knew that I had begun.
 * Angry people are not always wise.
 * Vanity and pride are different things, though the words are often used synonymously. A person may be proud without being vain. Pride relates more to our opinion of ourselves, vanity to what we would have others think of us.
-* What are men to rocks and mountains?
 * There is a stubbornness about me that never can bear to be frightened at the will of others. My courage always rises at every attempt to intimidate me.
 * I could easily forgive his pride, if he had not mortified mine.
 * I must learn to be content with being happier than I deserve.
@@ -65,17 +55,14 @@
 * You are too generous to trifle with me. If your feelings are still what they were last April, tell me so at once. My affections and wishes are unchanged; but one word from you will silence me on this subject for ever.
 * I am the happiest creature in the world. Perhaps other people have said so before, but not one with such justice. I am happier even than Jane; she only smiles, I laugh.
 * To be fond of dancing was a certain step towards falling in love.
-* For what do we live, but to make sport for our neighbors, and laugh at them in our turn?
 * From the very beginning— from the first moment, I may almost say— of my acquaintance with you, your manners, impressing me with the fullest belief of your arrogance, your conceit, and your selfish disdain of the feelings of others, were such as to form the groundwork of disapprobation on which succeeding events have built so immovable a dislike; and I had not known you a month before I felt that you were the last man in the world whom I could ever be prevailed on to marry.
 * You must learn some of my philosophy. Think only of the past as its remembrance gives you pleasure.
-* An unhappy alternative is before you, Elizabeth. From this day you must be a stranger to one of your parents. Your mother will never see you again if you do not marry Mr. Collins, and I will never see you again if you do.
 * I have faults enough, but they are not, I hope, of understanding. My temper I dare not vouch for. It is, I believe, too little yielding— certainly too little for the convenience of the world. I cannot forget the follies and vices of other so soon as I ought, nor their offenses against myself. My feelings are not puffed about with every attempt to move them. My temper would perhaps be called resentful. My good opinion once lost, is lost forever.
 * Till this moment I never knew myself.
 * We all know him to be a proud, unpleasant sort of man; but this would be nothing if you really liked him.
-* My good opinion once lost is lost forever.
 * You must allow me to tell you how ardently I admire and love you.
 * A girl likes to be crossed a little in love now and then. It is something to think of.
-* There is, I believe, in every disposition a tendency to some particular evil, a natural defect, which not even the best education can overcome.
+* "There is, I believe, in every disposition a tendency to some particular evil, a natural defect, which not even the best education can overcome."
 "And your defect is a propensity to hate everybody."
 "And yours," he replied with a smile, "is willfully to misunderstand them.
 * Her heart did whisper that he had done it for her.
@@ -140,9 +127,7 @@
 #### 1984
 * Perhaps one did not want to be loved so much as to be understood.
 * Who controls the past controls the future. Who controls the present controls the past.
-* War is peace.
-Freedom is slavery.
-Ignorance is strength.
+* War is peace. Freedom is slavery. Ignorance is strength.
 * The best books... are those that tell you what you know already.
 * If you want to keep a secret, you must also hide it from yourself.
 * We shall meet in the place where there is no darkness.
@@ -166,22 +151,19 @@ Ignorance is strength.
 * ...the love, respect, and confidence of my children was the sweetest reward I could receive for my efforts to be the woman I would have them copy.
 #### The Life of Pi
 * It is true that those we meet can change us, sometimes so profoundly that we are not the same afterwards, even unto our names.
-* To choose doubt as a philosophy of life is akin to choosing immobility as a means of transportation.
 * I must say a word about fear. It is life's only true opponent. Only fear can defeat life. It is a clever, treacherous adversary, how well I know. It has no decency, respects no law or convention, shows no mercy. It goes for your weakest spot, which it finds with unnerving ease. It begins in your mind, always ... so you must fight hard to express it. You must fight hard to shine the light of words upon it. Because if you don't, if your fear becomes a wordless darkness that you avoid, perhaps even manage to forget, you open yourself to further attacks of fear because you never truly fought the opponent who defeated you.
 * Life is so beautiful that death has fallen in love with it, a jealous, possessive love that grabs at what it can. But life leaps over oblivion lightly, losing only a thing or two of no importance, and gloom is but the passing shadow of a cloud...
 * When you've suffered a great deal in life, each additional pain is both unbearable and trifling.
 * If we, citizens, do not support our artists, then we sacrifice our imagination on the altar of crude reality and we end up believing in nothing and having worthless dreams.
 * It's important in life to conclude things properly. Only then can you let go. Otherwise you are left with words you should have said but never did, and your heart is heavy with remorse.
 * I've never forgotten him. Dare I say I miss him? I do. I miss him. I still see him in my dreams. They are nightmares mostly, but nightmares tinged with love. Such is the strangeness of the human heart. I still cannot understand how he could abandon me so unceremoniously, without any sort of goodbye, without looking back even once. The pain is like an axe that chops my heart.
-* “If you stumble about believability, what are you living for? Love is hard to believe, ask any lover. Life is hard to believe, ask any scientist. God is hard to believe, ask any believer. What is your problem with hard to believe?
+* If you stumble about believability, what are you living for? Love is hard to believe, ask any lover. Life is hard to believe, ask any scientist. God is hard to believe, ask any believer. What is your problem with hard to believe?
 * You must take life the way it comes at you and make the best of it.
 * To lose a brother is to lose someone with whom you can share the experience of growing old, who is supposed to bring you a sister-in-law and nieces and nephews, creatures who people the tree of your life and give it new branches. To lose your father is to lose the one whose guidance and help you seek, who supports you like a tree trunk supports its branches. To lose your mother, well, that is like losing the sun above you. It is like losing--I'm sorry, I would rather not go on.
-* I challenge anyone to understand Islam, its spirit, and not to love it. It is a beautiful religion of brotherhood and devotion.
 * You might think I lost all hope at that point. I did. And as a result I perked up and felt much better.
 * All living things contain a measure of madness that moves them in strange, sometimes inexplicable ways. This madness can be saving; it is part and parcel of the ability to adapt. Without it, no species would survive.
 * These people fail to realize that it is on the inside that God must be defended, not on the outside. They should direct their anger at themselves. For evil in the open is but evil from within that has been let out. The main battlefield for good is not the open ground of the public arena but the small clearing of each heart.
 * If there's only one nation in the sky, shouldn't all passports be valid for it?
-* The reason death sticks so closely to life isn't biological necessity; it's envy. Life is so beautiful that death has fallen in love with it, a jealous, possessive love that grabs at what it can.
 * Life will defend itself no matter how small it is.
 * I suppose in the end, the whole of life becomes an act of letting go, but what always hurts the most is not taking a moment to say goodbye.
 * If Christ spent an anguished night in prayer, if He burst out from the Cross, 'My God, my God, why have you forsaken me?' then surely we are also permitted doubt. But we must move on. To choose doubt as a philosophy of life is akin to choosing immobility as a means of transportation.
@@ -189,7 +171,7 @@ Ignorance is strength.
 * I know zoos are no longer in people's good graces. Religion faces the same problem. Certain illusions about freedom plague them both.
 * That's what fiction is about, isn't it, the selective transforming of reality? The twisting of it to bring out its essence?
 * The presence of God is the finest of rewards.
-* I was giving up. I would have given up - if a voice hadn't made itself heard in my heart. The voice said "I will not die. I refuse it. I will make it through this nightmare. I will beat the odds, as great as they are. I have survived so far, miraculously. Now I will turn miracle into routine. The amazing will be seen everyday. I will put in all the hard work necessary. Yes, so long as God is with me, I will not die. Amen.
+* I was giving up. I would have given up - if a voice hadn't made itself heard in my heart. The voice said "I will not die. I refuse it. I will make it through this nightmare. I will beat the odds, as great as they are. I have survived so far, miraculously. Now I will turn miracle into routine. The amazing will be seen everyday. I will put in all the hard work necessary. Yes, so long as God is with me, I will not die. Amen."
 * Misery loves company, and madness calls it forth.
 #### One Hundred Years of Solitude
 * It's enough for me to be sure that you and I exist at this moment.
@@ -202,31 +184,24 @@ Ignorance is strength.
 * Wherever they might be they always remember that the past was a lie, that memory has no return, that every spring gone by could never be recovered, and that the wildest and most tenacious love was an ephemeral truth in the end.
 * Many years later, as he faced the firing squad, Colonel Aureliano Buendía was to remember that distant afternoon when his father took him to discover ice.
 * and both of them remained floating in an empty universe where the only everyday & eternal reality was love...
-* Before reaching the final line, however, he had already understood that he would never leave that room, for it was foreseen that the city of mirrors (or mirages) would be wiped out by the wind and exiled from the memory of men at the precise moment
-when Aureliano Babilonia would finish deciphering the parchments, and that everything written on them was unrepeatable since time immemorial and forever more, because races condemned to one hundred years of solitude did not have a second opportunity on earth.
-* Cease, cows, life is short.
+* Before reaching the final line, however, he had already understood that he would never leave that room, for it was foreseen that the city of mirrors (or mirages) would be wiped out by the wind and exiled from the memory of men at the precise moment when Aureliano Babilonia would finish deciphering the parchments, and that everything written on them was unrepeatable since time immemorial and forever more, because races condemned to one hundred years of solitude did not have a second opportunity on earth.
 * Gaston was not only a fierce lover, with endless wisdom and imagination, but he was also, perhaps, the first man in the history of the species who had made an emergency landing and had come close to killing himself and his sweetheart simply to make love in a field of violets.
-* Intrigued by that enigma, he dug so deeply into her sentiments that in search of interest he found love, because by trying to make her love him he ended up falling in love with her.
 * Lost in the solitude of his immense power, he began to lose direction.
-* Things have a life of their own," the gypsy proclaimed with a harsh accent. "It's simply a matter of waking up their souls.
+* "Things have a life of their own," the gypsy proclaimed with a harsh accent. "It's simply a matter of waking up their souls."
 * Death really did not matter to him but life did, and therefore the sensation he felt when they gave their decision was not a feeling of fear but of nostalgia.
 * Thus they went on living in a reality that was slipping away, momentarily captured by words, but which would escape irremediably when they forgot the values of the written letters.
-* he secret of a good old age is simply an honorable pact with solitude.
+* The secret of a good old age is simply an honorable pact with solitude.
 * He soon acquired the forlorn look that one sees in vegetarians.
 * The world was reduced to the surface of her skin and her inner self was safe from all bitterness.
 * He pleaded so much that he lost his voice. His bones began to fill with words.
-* Both described at the same time how it was always March there and always Monday, and then they understood that José Arcadio Buendía was not as crazy as the family said, but that he was the only one who had enough lucidity to sense the truth of the fact that time also stumbled and had accidents and could therefore splinter and leave an eternalized fragment in a room.
-* A trickle of blood came out under the door, crossed the living room, went out into the street, continued on in a straight line across the uneven terraces, went down steps and climbed over curbs, passed along the Street of the Turks, turned a corner to the right and another to the left, made a right angle at the Buendía house, went in under the closed door, crossed through the parlor, hugging the walls so as not to stain the rugs, went on to the other living room, made a wide curve to avoid the dining-room table, went along the porch with the begonias, and passed without being seen under Amaranta's chair as she gave an arithmetic lesson to Aureliano José, and went through the pantry and came out in the kitchen, where Úrsula was getting ready to crack thirty-six eggs to make bread.
-* On rainy afternoons, embroidering with a group of friends on the begonia porch, she would lose the thread of the conversation and a tear of nostalgia would salt her palate when she saw the strips of damp earth and the piles of mud that the earthworms had pushed up in the garden. Those secret tastes, defeated in the past by oranges and rhubarb, broke out into an irrepressible urge when she began to weep. She went back to eating earth. The first time she did it almost out of curiosity, sure that the bad taste would be the best cure for the temptation. And, in fact, she could not bear the earth in her mouth. But she persevered, overcome by the growing anxiety, and little by little she was getting back her ancestral appetite, the taste of primary minerals, the unbridled satisfaction of what was the original food. She would put handfuls of earth in her pockets, and ate them in small bits without being seen, with a confused feeling of pleasure and rage, as she instructed her girl friends in the most difficult needlepoint and spoke about other men, who did not deserve the sacrifice of having one eat the whitewash on the walls because of them. The handfuls of earth made the only man who deserved that show of degradation less remote and more certain, as if the ground that he walked on with his fine patent leather boots in another part of the world were transmitting to her the weight and the temperature of his blood in a mineral savor that left a harsh aftertaste in her mouth and a sediment of peace in her heart.
 #### The Little Prince
 * And now here is my secret, a very simple secret: It is only with the heart that one can see rightly; what is essential is invisible to the eye.
 * All grown-ups were once children... but only few of them remember it.
 * It is the time you have wasted for your rose that makes your rose so important.
 * "What makes the desert beautiful," said the little prince, "is that somewhere it hides a well..."
 * The most beautiful things in the world cannot be seen or touched, they are felt with the heart.
-* People have forgotten this truth," the fox said. "But you mustn’t forget it. You become responsible forever for what you’ve tamed. You’re responsible for your rose.
+* "People have forgotten this truth," the fox said. "But you mustn’t forget it. You become responsible forever for what you’ve tamed. You’re responsible for your rose."
 * Grown-ups never understand anything by themselves, and it is tiresome for children to be always and forever explaining things to them.
-* You - you alone will have the stars as no one else has them...In one of the stars I shall be living. In one of them I shall be laughing. And so it will be as if all the stars were laughing, when you look at the sky at night...You - only you - will have stars that can laugh.
 * It is such a mysterious place, the land of tears.
 * Well, I must endure the presence of a few caterpillars if I wish to become acquainted with the butterflies.
 * You're beautiful, but you're empty...One couldn't die for you. Of course, an ordinary passerby would think my rose looked just like you. But my rose, all on her own, is more important than all of you together, since she's the one I've watered. Since she's the one I put under glass, since she's the one I sheltered behind the screen. Since she's the one for whom I killed the caterpillars (except the two or three butterflies). Since she's the one I listened to when she complained, or when she boasted, or even sometimes when she said nothing at all. Since she's my rose.
@@ -236,7 +211,7 @@ when Aureliano Babilonia would finish deciphering the parchments, and that every
 * All men have stars, but they are not the same things for different people. For some, who are travelers, the stars are guides. For others they are no more than little lights in the sky. For others, who are scholars, they are problems... But all these stars are silent. You-You alone will have stars as no one else has them... In one of the stars I shall be living. In one of them I shall be laughing. And so it will be as if all the stars will be laughing when you look at the sky at night..You, only you, will have stars that can laugh! And when your sorrow is comforted (time soothes all sorrows) you will be content that you have known me... You will always be my friend. You will want to laugh with me. And you will sometimes open your window, so, for that pleasure... It will be as if, in place of the stars, I had given you a great number of little bells that knew how to laugh.
 * And when your sorrow is comforted (time soothes all sorrows) you will be content that you have known me. You will always be my friend. You will want to laugh with me. And you will sometimes open your window, so, for that pleasure . . . And your friends will be properly astonished to see you laughing as you look up at the sky! Then you will say to them, 'Yes, the stars always make me laugh!' And they will think you are crazy. It will be a very shabby trick that I shall have played on you...
 * She cast her fragrance and her radiance over me. I ought never to have run away from her... I ought to have guessed all the affection that lay behind her poor little stratagems. Flowers are so inconsistent! But I was too young to know how to love her...
-* Grown-ups love figures... When you tell them you've made a new friend they never ask you any questions about essential matters. They never say to you "What does his voice sound like? What games does he love best? Does he collect butterflies? " Instead they demand "How old is he? How much does he weigh? How much money does his father make? " Only from these figures do they think they have learned anything about him.”
+* Grown-ups love figures... When you tell them you've made a new friend they never ask you any questions about essential matters. They never say to you "What does his voice sound like? What games does he love best? Does he collect butterflies? " Instead they demand "How old is he? How much does he weigh? How much money does his father make? " Only from these figures do they think they have learned anything about him.
 * I remembered the fox. One runs the risk of crying a bit if one allows oneself to be tamed.
 * A rock pile ceases to be a rock pile the moment a single man contemplates it, bearing within him the image of a cathedral.
 * In those days, I didn't understand anything. I should have judged her according to her actions, not her words. She perfumed my planet and lit up my life. I should never have run away! I ought to have realized the tenderness underlying her silly pretensions. Flowers are so contradictory! But I was too young to know how to love her.
@@ -245,7 +220,7 @@ when Aureliano Babilonia would finish deciphering the parchments, and that every
 #### Les Misérables
 * He never went out without a book under his arm, and he often came back with two.
 * Even the darkest night will end and the sun will rise.
-* What Is Love? I have met in the streets a very poor young man who was in love. His hat was old, his coat worn, the water passed through his shoes and the stars through his soul
+* What Is Love? I have met in the streets a very poor young man who was in love. His hat was old, his coat worn, the water passed through his shoes and the stars through his soul.
 * To love another person is to see the face of God.
 * The power of a glance has been so much abused in love stories, that it has come to be disbelieved in. Few people dare now to say that two beings have fallen in love because they have looked at each other. Yet it is in this way that love begins, and in this way only.
 * It is nothing to die. It is frightful not to live.
@@ -255,7 +230,7 @@ when Aureliano Babilonia would finish deciphering the parchments, and that every
 * Those who do not weep, do not see.
 * If I speak, I am condemned. If I stay silent, I am damned!
 * You who suffer because you love, love still more. To die of love, is to live by it.
-* each the ignorant as much as you can; society is culpable in not providing a free education for all and it must answer for the night which it produces. If the soul is left in darkness sins will be committed. The guilty one is not he who commits the sin, but he who causes the darkness.
+* Teach the ignorant as much as you can; society is culpable in not providing a free education for all and it must answer for the night which it produces. If the soul is left in darkness sins will be committed. The guilty one is not he who commits the sin, but he who causes the darkness.
 * You ask me what forces me to speak? a strange thing; my conscience.
 * A garden to walk in and immensity to dream in--what more could he ask? A few flowers at his feet and above him the stars.
 * There is nothing like a dream to create the future.
@@ -273,8 +248,8 @@ when Aureliano Babilonia would finish deciphering the parchments, and that every
   At times, Cosette faltered out a word. Her soul trembled on her lips like a drop of dew on a flower.
   Gradually, they began to talk. Overflow succeeded to silence, which is fullness. The night was serene and glorious above their heads. These two beings, pure as spirits, told each other everything, their dreams, their frenzies, their ecstasies, their chimeras, their despondencies, how they had adored each other from afar, how they had longed for each other, their despair when they had ceased to see each other. They had confided to each other in an intimacy of the ideal, which already, nothing could have increased, all that was most hidden and most mysterious in themselves. They told each other, with a candid faith in their illusions, all that love, youth and the remnant of childhood that was theirs, brought to mind. These two hearts poured themselves out to each other, so that at the end of an hour, it was the young man who had the young girl’s soul and the young girl who had the soul of the young man. They interpenetrated, they enchanted, they dazzled each other.
   When they had finished, when they had told each other everything, she laid her head on his shoulder, and asked him: "What is your name?"
-  My name is Marius," he said. "And yours?"
-  My name is Cosette.
+  "My name is Marius," he said. "And yours?"
+  "My name is Cosette."
 * There is always more misery among the lower classes than there is humanity in the higher.
 * Before him he saw two roads, both equally straight; but he did see two; and that terrified him--he who had never in his life known anything but one straight line. And, bitter anguish, these two roads were contradictory.
 * Love is the foolishness of men, and the wisdom of God.
@@ -291,9 +266,6 @@ when Aureliano Babilonia would finish deciphering the parchments, and that every
 * I do not think, sir, you have any right to command me, merely because you are older than I, or because you have seen more of the world than I have; your claim to superiority depends on the use you have made of your time and experience.
 * I have for the first time found what I can truly love–I have found you. You are my sympathy–my better self–my good angel–I am bound to you with a strong attachment. I think you good, gifted, lovely: a fervent, a solemn passion is conceived in my heart; it leans to you, draws you to my center and spring of life, wrap my existence about you–and, kindling in pure, powerful flame, fuses you and me in one.
 * If all the world hated you and believed you wicked, while your own conscience approved of you and absolved you from guilt, you would not be without friends.
-* Jane, be still; don't struggle so like a wild, frantic bird, that is rending its own plumage in its desperation."
-"I am no bird; and no net ensnares me; I am a free human being, with an independent will; which I now exert to leave you.
-* Do you think, because I am poor, obscure, plain and little, I am soulless and heartless? You think wrong! - I have as much soul as you, - and full as much heart! And if God had gifted me with some beauty and much wealth, I should have made it as hard for you to leave me, as it is now for me to leave you!
 * I can live alone, if self-respect, and circumstances require me so to do. I need not sell my soul to buy bliss. I have an inward treasure born with me, which can keep me alive if all extraneous delights should be withheld, or offered only at a price I cannot afford to give.
 * Prejudices, it is well known, are most difficult to eradicate from the heart whose soil has never been loosened or fertilized by education: they grow there, firm as weeds among stones.
 * Every atom of your flesh is as dear to me as my own: in pain and sickness it would still be dear.
@@ -303,9 +275,9 @@ when Aureliano Babilonia would finish deciphering the parchments, and that every
 * The soul, fortunately, has an interpreter - often an unconscious but still a faithful interpreter - in the eye.
 * I have little left in myself -- I must have you. The world may laugh -- may call me absurd, selfish -- but it does not signify. My very soul demands you: it will be satisfied, or it will take deadly vengeance on its frame.
 * I ask you to pass through life at my side—to be my second self, and best earthly companion.
-* It is a long way to Ireland, Janet, and I am sorry to send my little friend on such weary travels: but if I can't do better, how is it to be helped? Are you anything akin to me, do you think, Jane?"
+* "It is a long way to Ireland, Janet, and I am sorry to send my little friend on such weary travels: but if I can't do better, how is it to be helped? Are you anything akin to me, do you think, Jane?"
   I could risk no sort of answer by this time: my heart was still.
-  "Because, he said, "I sometimes have a queer feeling with regard to you - especially when you are near me, as now: it is as if I had a string somewhere under my left ribs, tightly and inextricably knotted to a similar string situated in the corresponding quarter of your little frame. And if that boisterous channel, and two hundred miles or so of land some broad between us, I am afraid that cord of communion will be snapt; and then I've a nervous notion I should take to bleeding inwardly. As for you, - you'd forget me.
+  "Because, he said, "I sometimes have a queer feeling with regard to you - especially when you are near me, as now: it is as if I had a string somewhere under my left ribs, tightly and inextricably knotted to a similar string situated in the corresponding quarter of your little frame. And if that boisterous channel, and two hundred miles or so of land some broad between us, I am afraid that cord of communion will be snapt; and then I've a nervous notion I should take to bleeding inwardly. As for you, - you'd forget me."
 * It is in vain to say human beings ought to be satisfied with tranquility: they must have action; and they will make it if they cannot find it. Millions are condemned to a stiller doom than mine, and millions are in silent revolt against their lot. Nobody knows how many rebellions besides political rebellions ferment in the masses of life which people earth. Women are supposed to be very calm generally: but women feel just as men feel; they need exercise for their faculties, and a field for their efforts, as much as their brothers do; they suffer from too rigid a restraint, to absolute a stagnation, precisely as men would suffer; and it is narrow-minded in their more privileged fellow-creatures to say that they ought to confine themselves to making puddings and knitting stockings, to playing on the piano and embroidering bags. It is thoughtless to condemn them, or laugh at them, if they seek to do more or learn more than custom has pronounced necessary for their sex.
 * Even for me life had its gleams of sunshine.
 * We know that God is everywhere; but certainly we feel His presence most when His works are on the grandest scale spread before us; and it is in the unclouded night-sky, where His worlds wheel their silent course, that we read clearest His infinitude, His omnipotence, His omnipresence.
@@ -345,7 +317,7 @@ of thorns.
 * I have often noticed that we are inclined to endow our friends with the stability of type that literary characters acquire in the reader's mind. [...] Whatever evolution this or that popular character has gone through between the book covers, his fate is fixed in our minds, and, similarly, we expect our friends to follow this or that logical and conventional pattern we have fixed for them. Thus X will never compose the immortal music that would clash with the second-rate symphonies he has accustomed us to. Y will never commit murder. Under no circumstances can Z ever betray us. We have it all arranged in our minds, and the less often we see a particular person, the more satisfying it is to check how obediently he conforms to our notion of him every time we hear of him. Any deviation in the fates we have ordained would strike us as not only anomalous but unethical. We could prefer not to have known at all our neighbor, the retired hot-dog stand operator, if it turns out he has just produced the greatest book of poetry his age has seen.
 * I recall certain moments, let us call them icebergs in paradise, when after having had my fill of her –after fabulous, insane exertions that left me limp and azure-barred–I would gather her in my arms with, at last, a mute moan of human tenderness (her skin glistening in the neon light coming from the paved court through the slits in the blind, her soot-black lashes matted, her grave gray eyes more vacant than ever–for all the world a little patient still in the confusion of a drug after a major operation)–and the tenderness would deepen to shame and despair, and I would lull and rock my lone light Lolita in my marble arms, and moan in her warm hair, and caress her at random and mutely ask her blessing, and at the peak of this human agonized selfless tenderness (with my soul actually hanging around her naked body and ready to repent), all at once, ironically, horribly, lust would swell again–and 'oh, no,' Lolita would say with a sigh to heaven, and the next moment the tenderness and the azure–all would be shattered.
 * We live not only in a world of thoughts, but also in a world of things. Words without experience are meaningless.
-* if a violin string could ache, i would be that string.
+* if a violin string could ache, I would be that string.
 * I am sufficiently proud of my knowing something to be modest about my not knowing all.
 * We had been everywhere. We had really seen nothing. And I catch myself thinking today that our long journey had only defiled with a sinuous trail of slime the lovely, trustful, dreamy, enormous country that by then, in retrospect, was no more to us than a collection of dog-eared maps, ruined tour books, old tires, and her sobs in the night — every night, every night — the moment I feigned sleep.
 #### As you like it
@@ -355,13 +327,9 @@ of thorns.
 * Love all, trust a few, do wrong to none.
 #### Macbeth
 * Stars, hide your fires; Let not light see my black and deep desires.
-* Life ... is a tale
-Told by an idiot, full of sound and fury,
-Signifying nothing.
+* Life ... is a tale Told by an idiot, full of sound and fury, Signifying nothing.
 * What's done cannot be undone.
-* ...Who could refrain,
-That had a heart to love, and in that heart
-Courage to make love known?
+* ...Who could refrain, That had a heart to love, and in that heart Courage to make love known?
 #### The Tempest
 * Hell is empty and all the devils are here.
 * We are such stuff as dreams are made on, and our little life is rounded with a sleep.
@@ -379,30 +347,24 @@ As dreams are made on, and our little life
 Is rounded with a sleep.
 * Be not afeard; the isle is full of noises,
 Sounds, and sweet airs, that give delight and hurt not.
-Sometimes a thousand twangling instruments
+Sometimes a thousand twanging instruments
 Will hum about mine ears; and sometime voices,
 That, if I then had waked after long sleep,
 Will make me sleep again: and then, in dreaming,
 The clouds methought would open, and show riches
 Ready to drop upon me; that, when I waked,
 I cried to dream again.
-* Let us not burthen our remembrance with
-A heaviness that's gone.
+* Let us not burthen our remembrance with A heaviness that's gone.
 * Misery acquaints a man with strange bedfellows.
-*  would not wish any companion in the world but you.
+*  I would not wish any companion in the world but you.
 #### Julies Caesar
 * Men at some time are masters of their fates. The fault, dear Brutus, is not in our stars, but in ourselves, that we are underlings.
 * Cowards die many times before their deaths;
-The valiant never taste of death but once.
-Of all the wonders that I yet have heard,
-It seems to me most strange that men should fear;
-Seeing that death, a necessary end,
-Will come when it will come.
-* A coward dies a thousand times before his death, but the valiant taste of death but once. It seems to me most strange that men should fear, seeing that death, a necessary end, will come when it will come.
-* Of all the wonders that I have heard,
-It seems to me most strange that men should fear;
-Seeing death, a necessary end,
-Will come when it will come.
+  The valiant never taste of death but once.
+  Of all the wonders that I yet have heard,
+  It seems to me most strange that men should fear;
+  Seeing that death, a necessary end,
+  Will come when it will come.
 * The evil that men do lives after them;
 The good is oft interred with their bones.
 * There is a tide in the affairs of men
@@ -476,17 +438,14 @@ And flights of angels sing thee to thy rest.
 * When sorrows come, they come not single spies. But in battalions!
 * God hath given you one face, and you make yourself another.
 * Sweets to the sweet.
-* I must be cruel only to be kind;
-Thus bad begins, and worse remains behind.
+* I must be cruel only to be kind; Thus bad begins, and worse remains behind.
 * If we are true to ourselves, we can not be false to anyone.
 * I loved Ophelia. Forty thousand brothers could not, with all their quantity of love, make up my sum.
-* So full of artless jealousy is guilt,
-It spills itself in fearing to be spilt.
+* So full of artless jealousy is guilt, It spills itself in fearing to be spilt.
 * To be honest, as this world goes, is to be one man picked out of ten thousand.
-* I am but mad north-north-west. When the wind is southerly, I know a hawk from a handsaw.
 #### Twelfth Night
 * Be not afraid of greatness. Some are born great, some achieve greatness, and others have greatness thrust upon them.
-* f music be the food of love, play on,
+* If music be the food of love, play on,
 Give me excess of it; that surfeiting,
 The appetite may sicken, and so die.
 * Better a witty fool, than a foolish wit.
@@ -494,16 +453,14 @@ The appetite may sicken, and so die.
 * a young woman in love always looks like patience on a monument smiling at grief
 * Love sought is good, but giv'n unsought is better.
 * Olivia: How does he love me?
-Viola: With adoration, with fertile tears,
-With groans that thunder love, with sighs of fire.
+Viola: With adoration, with fertile tears, With groans that thunder love, with sighs of fire.
 * She never told her love, but let concealment, like a worm 'i th' bud, feed on her damask cheek. She pinned in thought; and, with a green and yellow melancholy, she sat like Patience on a monument, smiling at grief. Was not this love indeed? We men may say more, swear more; but indeed our shows are more than will; for we still prove much in our vows but little in our love.
 * In nature there's no blemish but the mind.
 None can be called deformed but the unkind.
 * I have unclasp'd to thee the book even of my secret soul.
 * Antonio: Will you stay no longer? nor will you not that I go with you?
 Sebastian: By your patience, no. My stars shine darkly over me; the malignancy of my fate might, perhaps, distemper yours; therefore I shall crave of you your leave that I may bear my evils alone. It were a bad recompense for your love to lay any of them on you.
-* My stars shine darkly over me
-* Be not afraid of greatness.
+* My stars shine darkly over me.
 * Dost thou think, because thou art virtuous, there shall be no more cakes and ale?
 #### Tropic of Cancer
 * I need to be alone. I need to ponder my shame and my despair in seclusion; I need the sunshine and the paving stones of the streets without companions, without conversation, face to face with myself, with only the music of my heart for company.
@@ -514,15 +471,14 @@ Sebastian: By your patience, no. My stars shine darkly over me; the malignancy o
 * Do anything, but let it produce joy. Do anything, but let it yield ecstasy.
 * Paris is like a whore. From a distance she seems ravishing, you can't wait until you have her in your arms. And five minutes later you feel empty, disgusted with yourself. You feel tricked.
 * On the meridian of time, there is no injustice: there is only the poetry of motion creating the illusion of truth and drama.
-* You must be life for me to the very end," so he writes. "That is the only way in which to sustain my idea of you. Because you have gotten, as you see, tied up with something so vital to me, I do not think I shall ever shake you off. Nor do I wish to. I want you to live more vitally every day, as I am dead. That is why, when I speak of you to others, I am just a bit ashamed. It's hard to talk of one's self so intimately.
+* "You must be life for me to the very end," so he writes. "That is the only way in which to sustain my idea of you. Because you have gotten, as you see, tied up with something so vital to me, I do not think I shall ever shake you off. Nor do I wish to. I want you to live more vitally every day, as I am dead. That is why, when I speak of you to others, I am just a bit ashamed. It's hard to talk of one's self so intimately.
 * When I realize that she is gone, perhaps gone forever, a great void opens up and I feel that I am falling, falling, falling into deep, black space. And this is worse than tears, deeper than regret or pain or sorrow, it is the abyss into which Satan was plunged. There is no climbing back, no ray of light, no sound of human voice or human touch of hand.
 * ...the monstrous thing is not that men have created roses out of this dung heap, but that, for some reason or other, they should want roses. For some reason or other man looks for the miracle, and to accomplish it he will wade through blood. He will debauch himself with ideas, he will reduce himself to a shadow if for only one second of his life he can close his eyes to the hideousness of reality. Everything is endured- disgrace, humiliation, poverty, war, crime, ennui- in the belief that overnight something will occur, a miracle, which will render life tolerable. And all the while a meter is running inside and there is no hand that can reach in there and shut it off.
 * Well, I'll take these pages and move on. Things are happening elsewhere. Things are always happening. It seems wherever I go there is drama. People are like lice - they get under your skin and bury themselves there. You scratch and scratch until the blood comes, but you can't get permanently deloused. Everywhere I go people are making a mess of their lives. Everyone has his private tragedy. It's in the blood now - misfortune, ennui, grief, suicide. The atmosphere is saturated with disaster, frustration, futility. Scratch and scratch, until there's no skin left. However, the effect upon me is exhilarating. Instead of being discouraged or depressed, I enjoy it. I am crying for more and more disasters, for bigger calamities, grander failures. I want the whole world to be out of whack, I want every one to scratch himself to death.
 * For a hundred years or more the world, our world, has been dying. And not one man, in these last hundred years or so, has been crazy enough to put a bomb up the asshole of creation and set it off. The world is rotting away, dying piecemeal. But it needs the coup de grace, it needs to be blown to smithereens. Not one of us is intact, and yet we have in us all the continents and the seas between the continents and the birds of the air. We are going to put it down ― the evolution of this world which has died but which has not been buried.
 #### A Midsummer Night's Dreams
 * Love looks not with the eyes, but with the mind,
-And therefore is winged Cupid painted blind.
-* Though she be but little, she is fierce!
+  And therefore is winged Cupid painted blind.
 * The course of true love never did run smooth.
 * And yet,to say the truth, reason and love keep little company together nowadays.
 * Lovers and madmen have such seething brains,
@@ -588,14 +544,13 @@ No more yielding, but a dream.
 #### Gone with the Wind
 * Burdens are for shoulders strong enough to carry them.
 #### Romeo and Juliet
-* Good night, good night! parting is such sweet sorrow,  That I shall say good night till it be morrow.
-* thus with a kiss I die
+* Good night, good night! Parting is such sweet sorrow,  That I shall say good night till it be morrow.
+* thus with a kiss I die.
 * Don't waste your love on somebody, who doesn't value it.
 * Love is heavy and light, bright and dark, hot and cold, sick and healthy, asleep and awake- its everything except what it is! 
 * Do not swear by the moon, for she changes constantly. then your love would also change.
 * What's in a name? that which we call a rose By any other name would smell as sweet.
 * Love is a smoke made with the fume of sighs.
-* Parting is such sweet sorrow that I shall say goodnight till it be morrow.
 #### A Tale of Two Cities
 * A wonderful fact to reflect upon, that every human creature is constituted to be that profound secret and mystery to every other. A solemn consideration, when I enter a great city by night, that every one of those darkly clustered houses encloses its own secret; that every room in every one of them encloses its own secret; that every beating heart in the hundreds of thousands of breasts there, is, in some of its imaginings, a secret to the heart nearest it! Something of the awfulness, even of Death itself, is referable to this. No more can I turn the leaves of this dear book that I loved, and vainly hope in time to read it all. No more can I look into the depths of this unfathomable water, wherein, as momentary lights glanced into it, I have had glimpses of buried treasure and other things submerged. It was appointed that the book should shut with a a spring, for ever and for ever, when I had read but a page. It was appointed that the water should be locked in an eternal frost, when the light was playing on its surface, and I stood in ignorance on the shore. My friend is dead, my neighbor is dead, my love, the darling of my soul, is dead; it is the inexorable consolidation and perpetuation of the secret that was always in that individuality, and which I shall carry in mine to my life's end. In any of the burial-places of this city through which I pass, is there a sleeper more inscrutable than its busy inhabitants are, in their innermost personality, to me, or than I am to them?
 * It is a far, far better thing that I do, than I have ever done; it is a far, far better rest that I go to than I have ever known.
@@ -608,7 +563,7 @@ There is prodigious strength in sorrow and despair.
 * Suffering has been stronger than all other teaching, and has taught me to understand what your heart used to be. I have been bent and broken, but - I hope - into a better shape.
 * Heaven knows we need never be ashamed of our tears, for they are rain upon the blinding dust of earth, overlying our hard hearts. I was better after I had cried, than before--more sorry, more aware of my own ingratitude, more gentle.  
 * In a word, I was too cowardly to do what I knew to be right, as I had been too cowardly to avoid doing what I knew to be wrong.
-* here was a long hard time when I kept far from me the remembrance of what I had thrown away when I was quite ignorant of its worth.
+* There was a long hard time when I kept far from me the remembrance of what I had thrown away when I was quite ignorant of its worth.
 * The broken heart. You think you will die, but you just keep living, day after day after terrible day.
 * Ask no questions, and you'll be told no lies.
 * Spring is the time of year when it is summer in the sun and winter in the shade.
@@ -654,7 +609,6 @@ Because it is real.
 #### Sherlock Holmes Season Four
 * The problems of your past, are your business. The problems of your future, are my privilege.
 ### Translations
-* Sometimes ever, sometimes never. (相聚有时， 后会无期)
 ### Poems
 #### Sonnet 18
 Shall I compare thee to a summer’s day?
