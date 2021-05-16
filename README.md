@@ -312,10 +312,8 @@ when Aureliano Babilonia would finish deciphering the parchments, and that every
 * I have little left in myself -- I must have you. The world may laugh -- may call me absurd, selfish -- but it does not signify. My very soul demands you: it will be satisfied, or it will take deadly vengeance on its frame.
 * I ask you to pass through life at my side—to be my second self, and best earthly companion.
 * It is a long way to Ireland, Janet, and I am sorry to send my little friend on such weary travels: but if I can't do better, how is it to be helped? Are you anything akin to me, do you think, Jane?"
-
-I could risk no sort of answer by this time: my heart was still.
-
-"Because, he said, "I sometimes have a queer feeling with regard to you - especially when you are near me, as now: it is as if I had a string somewhere under my left ribs, tightly and inextricably knotted to a similar string situated in the corresponding quarter of your little frame. And if that boisterous channel, and two hundred miles or so of land some broad between us, I am afraid that cord of communion will be snapt; and then I've a nervous notion I should take to bleeding inwardly. As for you, - you'd forget me.
+  I could risk no sort of answer by this time: my heart was still.
+  "Because, he said, "I sometimes have a queer feeling with regard to you - especially when you are near me, as now: it is as if I had a string somewhere under my left ribs, tightly and inextricably knotted to a similar string situated in the corresponding quarter of your little frame. And if that boisterous channel, and two hundred miles or so of land some broad between us, I am afraid that cord of communion will be snapt; and then I've a nervous notion I should take to bleeding inwardly. As for you, - you'd forget me.
 * It is in vain to say human beings ought to be satisfied with tranquility: they must have action; and they will make it if they cannot find it. Millions are condemned to a stiller doom than mine, and millions are in silent revolt against their lot. Nobody knows how many rebellions besides political rebellions ferment in the masses of life which people earth. Women are supposed to be very calm generally: but women feel just as men feel; they need exercise for their faculties, and a field for their efforts, as much as their brothers do; they suffer from too rigid a restraint, to absolute a stagnation, precisely as men would suffer; and it is narrow-minded in their more privileged fellow-creatures to say that they ought to confine themselves to making puddings and knitting stockings, to playing on the piano and embroidering bags. It is thoughtless to condemn them, or laugh at them, if they seek to do more or learn more than custom has pronounced necessary for their sex.
 * Even for me life had its gleams of sunshine.
 * We know that God is everywhere; but certainly we feel His presence most when His works are on the grandest scale spread before us; and it is in the unclouded night-sky, where His worlds wheel their silent course, that we read clearest His infinitude, His omnipotence, His omnipresence.
@@ -323,6 +321,7 @@ I could risk no sort of answer by this time: my heart was still.
 * It does good to no woman to be flattered [by a man] who does not intend to marry her; and it is madness in all women to let a secret love kindle within them, which, if unreturned and unknown, must devour the life that feeds it; and, if discovered and responded to, must lead, ignis-fatuus-like, into miry wilds whence there is no extrication.
 * Laws and principles are not for the times when there is no temptation: they are for such moments as this, when body and soul rise in mutiny against their rigour ... If at my convenience I might break them, what would be their worth?
 * Good-night, my-" He stopped, bit his lip, and abruptly left me.
+
 #### Lolita
 * It was love at first sight, at last sight, at ever and ever sight.
 * And the rest is rust and stardust.
