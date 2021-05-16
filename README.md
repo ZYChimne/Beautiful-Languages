@@ -266,23 +266,15 @@ when Aureliano Babilonia would finish deciphering the parchments, and that every
 * When love has fused and mingled two beings in a sacred and angelic unity, the secret of life has been discovered so far as they are concerned; they are no longer anything more than the two boundaries of the same destiny; they are no longer anything but the two wings of the same spirit. Love, soar.
 * He fell to the seat, she by his side. There were no more words. The stars were beginning to shine. How was it that the birds sing, that the snow melts, that the rose opens, that May blooms, that the dawns whitens behind the black trees on the shivering summit of the hills?
   One kiss, and that was all.
-
   Both trembled, and they looked at each other in the darkness with brilliant eyes.
-
   They felt neither the cool night, nor the cold stone, nor the damp ground, nor the wet grass; they looked at each other, and their hearts were full of thought. They had clasped hands, without knowing it.
-
   She did not ask him; did not even think where and how he had managed to get into the garden. It seemed so natural to her that he should be there.
-
   From time to time Marius’ knee touched Cosette’s. A touch that thrilled.
   At times, Cosette faltered out a word. Her soul trembled on her lips like a drop of dew on a flower.
-
   Gradually, they began to talk. Overflow succeeded to silence, which is fullness. The night was serene and glorious above their heads. These two beings, pure as spirits, told each other everything, their dreams, their frenzies, their ecstasies, their chimeras, their despondencies, how they had adored each other from afar, how they had longed for each other, their despair when they had ceased to see each other. They had confided to each other in an intimacy of the ideal, which already, nothing could have increased, all that was most hidden and most mysterious in themselves. They told each other, with a candid faith in their illusions, all that love, youth and the remnant of childhood that was theirs, brought to mind. These two hearts poured themselves out to each other, so that at the end of an hour, it was the young man who had the young girl’s soul and the young girl who had the soul of the young man. They interpenetrated, they enchanted, they dazzled each other.
-
   When they had finished, when they had told each other everything, she laid her head on his shoulder, and asked him: "What is your name?"
-
   My name is Marius," he said. "And yours?"
   My name is Cosette.
-
 * There is always more misery among the lower classes than there is humanity in the higher.
 * Before him he saw two roads, both equally straight; but he did see two; and that terrified him--he who had never in his life known anything but one straight line. And, bitter anguish, these two roads were contradictory.
 * Love is the foolishness of men, and the wisdom of God.
